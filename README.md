@@ -1,1 +1,1 @@
-![profile image](wallpaper.25)
+![profile image](wallpaper2025.png)
